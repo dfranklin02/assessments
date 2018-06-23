@@ -1,1 +1,1 @@
-
+Your score suggests that your essay consistently and appropriately uses a variety of sentence structures, including sophisticated sentence structures such as complex, compound, or compound-complex sentences. If you are interested in reviewing specifics types of sentences, we recommend following this link: https://owl.excelsior.edu/esl-wow/editing-polishing/check-punctuation/types-of-sentences/
