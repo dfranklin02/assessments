@@ -1,2 +1,1 @@
-Conventions: Correct spelling, punctuation, and capitalization lend clarity and credibility to academic writing, which should require little or no editing. 
-
+Your score suggests that the spelling, punctuation, and capitalization in your essay are correct to the extent that almost no editing is needed. There are very few, if any, minor errors of usage. Bravo! We recommend that you continue to edit future essays to ensure that there are no errors. We also recommend checking out the 20 most common errors here: https://owl.excelsior.edu/grammar-essentials/common-errors/   
