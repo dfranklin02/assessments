@@ -1,1 +1,1 @@
-
+Your score suggests that the paragraphs in your essay are consistently and clearly focused on a main idea or point. If you are curious about using topic sentences in your essays, we recommend following this link: https://owl.excelsior.edu/writing-process/paragraphing/paragraphing-topic-sentences/ 
