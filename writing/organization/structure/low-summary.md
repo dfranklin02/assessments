@@ -1,1 +1,5 @@
-
+Your score indicates that the structure and order of your essay prevented you from clearly communicating your ideas. It might help to start by developing an outline and then filling it in with the big ideas. We recommend reviewing the format for a traditional essay structure by following this link: https://owl.excelsior.edu/writing-process/essay-writing/essay-writing-traditional-essay-structure/.  You might also want to talk to someone in your college’s writing center about organizing your essays.  Here are some other helpful links about how to organize and draft essays:
+Essay structure: https://owl.excelsior.edu/writing-process/essay-writing/essay-writing-traditional-essay-structure/
+Prewriting strategies: https://owl.excelsior.edu/writing-process/prewriting-strategies/ 
+Organizing your paper: https://owl.excelsior.edu/esl-wow/getting-ready-to-write/developing-a-thesis/esl-organizing-your-paper/ 
+Ordering and drafting: https://owl.excelsior.edu/writing-process/writing-process-overview/writing-process-ordering-and-drafting/
