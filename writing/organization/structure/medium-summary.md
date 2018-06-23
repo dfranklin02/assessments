@@ -1,1 +1,3 @@
-
+Your score suggests that your essay has a general structure and order but may not have a clear, overall organization that enables a reader to follow the progression of one idea to the next. Although the structure is logical, it might seem haphazard at times. One good strategy is to reread your essay and edit or reorganize sentences and paragraphs that seem irrelevant or out of place. We recommend reviewing how to organize and draft your paper by following these links: 
+Organizing your paper: https://owl.excelsior.edu/esl-wow/getting-ready-to-write/developing-a-thesis/esl-organizing-your-paper/ 
+Ordering and drafting: https://owl.excelsior.edu/writing-process/writing-process-overview/writing-process-ordering-and-drafting/
