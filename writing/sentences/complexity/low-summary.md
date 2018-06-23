@@ -1,1 +1,4 @@
-
+Your score suggests that the sentences in your essay lack syntactic complexity and vary little in terms of structure. In other words, the sentences in your essay tend to be relatively simple in structure, following a basic subject-verb-object pattern, perhaps with a few additional elements such as brief introductory phrases, prepositional phrases, or modifiers. As a next step, we recommend learning how to combine clauses to create complex and compound sentences by following this link: https://owl.excelsior.edu/esl-wow/editing-polishing/check-punctuation/types-of-sentences/. If it is still challenging to write strong, complex sentences, you may want to meet with a tutor at the writing center. 
+We also recommend visiting some of the links below to help you with writing sentences:
+Clauses: https://owl.excelsior.edu/esl-wow/editing-polishing/check-punctuation/esl-clauses/
+Missing comma in a compound sentence: https://owl.excelsior.edu/grammar-essentials/common-errors/common-errors-missing-comma-in-compound-sentence/
