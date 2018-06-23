@@ -1,2 +1,1 @@
-
-
+Your score indicates that the paragraphs in your essay are generally but not consistently focused on a main idea or point. Some paragraphs might lack a clear focus on a main idea. One way to resolve this issue is to reread your paragraphs with an eye for unrelated or unnecessary sentences that can be removed. We also recommend reviewing the information on how to write strong paragraphs found here: https://owl.excelsior.edu/research/drafting-and-integrating/drafting-and-integrating-paragraphing/
