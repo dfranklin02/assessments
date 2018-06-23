@@ -1,1 +1,1 @@
-Your writing was scored at the emerging level.
+Your score suggests that the paragraphs in your essay are usually linked with transitions, as needed. The transitions might be implied or strained, but a reader can follow along. If you would like to learn how to use transitions more effectively, we recommend following this link: https://owl.excelsior.edu/writing-process/paragraphing/paragraphing-and-transitioning/  
