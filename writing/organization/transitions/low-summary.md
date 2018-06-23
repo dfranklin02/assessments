@@ -1,1 +1,1 @@
-Your writing was scored at the developing level.
+Your score suggests that transitions between paragraphs in your essay are missing or ineffective; the paragraphs might abruptly shift from one idea to the next. We recommend these links, which can give you some ideas for writing paragraphs and using transitions effectively: https://owl.excelsior.edu/writing-process/paragraphing/  and https://owl.excelsior.edu/writing-process/paragraphing/paragraphing-and-transitioning/ You could also see a tutor in a writing center who can help you effectively use transitions.  
