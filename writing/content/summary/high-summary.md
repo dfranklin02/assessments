@@ -1,1 +1,1 @@
-
+Your score indicates that your essay used relevant survey results and feedback to provide a detailed summary of your strengths and weaknesses in terms of SRL. If you are interested in making your summaries even better, we recommend these resources: https://owl.excelsior.edu/research/drafting-and-integrating/drafting-and-integrating-summarizing/
