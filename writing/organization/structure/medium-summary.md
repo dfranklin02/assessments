@@ -1,1 +1,1 @@
-
+Your score shows that your essay is well-organized, with an order and structure that present the discussion in a clear, logical manner. If you are curious about new prewriting strategies that can help organize your papers, we recommend that you follow this link: https://owl.excelsior.edu/writing-process/prewriting-strategies/ 
