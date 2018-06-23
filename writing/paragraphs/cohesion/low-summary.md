@@ -1,1 +1,3 @@
-
+Your score indicates that the connections between ideas in sentences within the paragraphs in your essay are unclear. As you write, you might identify places in each paragraph that would benefit from linking words and phrases such as adverbs (e.g., similarly, also, therefore), relative pronouns (e.g., who, that, which), conjunctions (e.g., and, or, while, whereas). Also aim for strategic repetition of key words. To learn more about how to write effective paragraphs and use linking words, click here: 
+Paragraphing: https://owl.excelsior.edu/research/drafting-and-integrating/drafting-and-integrating-paragraphing/
+Transitions: https://owl.excelsior.edu/writing-process/paragraphing/paragraphing-and-transitioning/
